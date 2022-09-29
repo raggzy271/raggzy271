@@ -2,7 +2,7 @@
 
 ### I'm a Student, Developer, and Life-long Learner!!
 
-- 🧠 Brainstorming on ways to save the world through code.
+- 🧠 Brainstorming ways to save the world through code.
 - 🎵 I love to listen to and play music!
 
 ### Connect with me:
